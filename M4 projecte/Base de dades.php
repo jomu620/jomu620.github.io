@@ -1,0 +1,1 @@
+Recollida de dades
